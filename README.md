@@ -109,6 +109,6 @@ Licensed under the [MIT License](LICENSE).
 
 ---
 
-> Find me on [GitHub](https://github.com/jyotsnagururani) ; [LinkedIn](https://www.linkedin.com/in/jyotsnagururani/)
+> Find me on [GitHub](https://github.com/jyotsnagururani) ; [LinkedIn](https://www.linkedin.com/in/jyotsna-gururani-691960219)
 
 ---
